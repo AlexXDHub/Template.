@@ -1,2 +1,0 @@
-# Template.
-.amolw.owm.oawnks
